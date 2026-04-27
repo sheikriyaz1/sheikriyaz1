@@ -48,7 +48,7 @@
 
 ## 🌐 Connect With Me
 - 📧 Email: rsheik787@gmail.com  
-- 💼 LinkedIn: *(add your link here)*  
+- 💼 LinkedIn: *https://www.linkedin.com/posts/sheik-riyaz1*
 
 ---
 
